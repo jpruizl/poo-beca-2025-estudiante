@@ -8,7 +8,7 @@
 
 ### Nivel Professional - Módulos 1, 2, 3 y 4
 
-#### Duración estimada: 1.5 horas (90 minutos)
+#### Duración estimada: 
 
 #### Modalidad: Clase Virtual o Presencial Interactiva
 
